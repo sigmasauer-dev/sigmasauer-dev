@@ -1,4 +1,4 @@
-## Hi there 👋
+## Come join the movement. Alsania Network coming soon...
 
 <!--
 **sigmasauer-dev/sigmasauer-dev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
